@@ -1,4 +1,4 @@
-#  
+#  dig deeper for brainrots Script automatic is the best dig deeper for brainrots Script, featuring unlimited stamina and custom skins. Safe and
 
 
 
